@@ -141,7 +141,6 @@ By accessing or using the website, you acknowledge that you have had the opportu
 ## 🔎 SEO Keywords
 
 WorkSwiss, WorkSwiss trading, WorkSwiss official website, online trading platform, global financial markets, trading account, online trading services, account management, trading platform access, market access, trading account verification, KYC policy, AML policy, privacy policy, deposit and withdrawal policy, trading risk disclosure, financial market risk, account security, customer support, WorkSwiss contact, WorkSwiss support, workswiss.com, WorkSwiss GitHub.
-
 ---
 
 <div align="center">
